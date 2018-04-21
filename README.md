@@ -68,7 +68,7 @@ From your peers? (outside the team)
 
 What’s your favourite baked good?
 
-C- hewy, soft chocolate chip cookies. Oh, and bran rusks! 
+- Chewy, soft chocolate chip cookies. Oh, and bran rusks! 
 
 
 ## My expectations of folks who report to me
